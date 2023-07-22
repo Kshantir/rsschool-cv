@@ -4,5 +4,4 @@
 3.![Могу делать так](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
     -и так могу
     -люблю работать
-    -очень 
 4.![И вот так тоже](https://s0.rbk.ru/v6_top_pics/media/img/0/10/756372136012100.jpg)
