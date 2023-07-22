@@ -1,1 +1,1 @@
-https://Kshantir.github.io/rsschool-cv/cv
+https://github.com/Kshantir/rsschool-cv/blob/gh-pages/CV.md
